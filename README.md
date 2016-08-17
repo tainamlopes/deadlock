@@ -1,1 +1,2 @@
 # deadlock
+AQUI NAO TEM NADA! CURIOSO.
